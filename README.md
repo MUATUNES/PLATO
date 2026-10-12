@@ -1,0 +1,2 @@
+# PLATO
+LAWS
